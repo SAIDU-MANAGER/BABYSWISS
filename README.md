@@ -10,8 +10,7 @@ Celebrating the release of BABYSWISS we’ve developed a revolutionary defi toke
  Hold @BabySwiss and get rewarded in ALPACA-TOKEN on every transaction!
 
 
-
-    SWISSNOMIC
+SWISSNOMIC
     
 With our experience in the DeFi space, we understood that cool tokenomics and features come at a price: high tax. However, many beginner investors are scared off by higher tax     numbers, not grasping the potential gains yielded by each taxed transaction. For $BSWISS, we tried finding the right balance.
  
