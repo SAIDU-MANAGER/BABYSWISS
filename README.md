@@ -2,7 +2,7 @@ Celebrating the release of BABYSWISS we’ve developed a revolutionary defi toke
 
 
 
- Welcome to Baby Swiss🇨🇭from Switzerland, the land of wealth, luxury and Alps ⛰ this why we decided to give 10% on all transactions with $ALPACA 🦙 which is the token that got listed on binance this year, and can be staked and farmed for the future.
+ Welcome to Baby Swiss�from Switzerland, the land of wealth, luxury and Alps ⛰ this why we decided to give 10% on all transactions with $ALPACA 🦙 which is the token that got listed on binance this year, and can be staked and farmed for the future.
 
 
 
