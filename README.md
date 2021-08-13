@@ -1,13 +1,9 @@
-Celebrating the release of BABYSWISS we’ve developed a revolutionary defi token that rewards holders in ALPACA TOKEN a great UTILITY TOKEN that you can stake and farm it.
+Celebrating the release of BABYSWISS we’ve developed a revolutionary defi token that rewards holders in ALPACA TOKEN a great UTILITY TOKEN that you can staked and farmed for the future.
 
 
 
- 
- @BabySwiss proposes an innovative feature in its contract.
- DIVIDEND YIELD PAID IN ALPACA-TOKEN! With the auto-claim feature,
- simply hold @BabySwiss and you'll receive ALPACA-TOKEN automatically in your wallet.
- 
- Hold @BabySwiss and get rewarded in ALPACA-TOKEN on every transaction!
+ Welcome to Baby Swiss🇨🇭from Switzerland, the land of wealth, luxury and Alps ⛰ this why we decided to give 10% on all transactions with $ALPACA 🦙 which is the token that got listed on binance this year, and can be staked and farmed for the future.
+
 
 
 SWISSNOMIC
