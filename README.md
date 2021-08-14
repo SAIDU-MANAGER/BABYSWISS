@@ -27,3 +27,7 @@ With our experience in the DeFi space, we understood that cool tokenomics and fe
  
  
  TG: https://t.me/BabySwissToken
+
+ TWT: https://twitter.com/babyswissBSC
+ 
+ GMAIL: babyswissofficial@gmail.com
